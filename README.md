@@ -1,1 +1,1 @@
-https://enjoyhub0.github.io/PremiumWebHub/
+https://enjoyhub0.github.io/PremiumWeb/
